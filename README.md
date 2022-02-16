@@ -1,2 +1,5 @@
 # Unban-Fivem
-للاستفسار اكثر من فك الباند الرجاء التواصل عن طريق 
+للاستفسار اكثر عن فك الباند الرجاء التواصل عن طريق الديسكورد             https://discord.gg/TSE  
+
+For more information Fivem ban , please contact us via Discord                   https://discord.gg/TSE
+
